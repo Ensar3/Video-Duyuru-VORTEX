@@ -1,1 +1,0 @@
-# Video-Duyuru-VORTEX
